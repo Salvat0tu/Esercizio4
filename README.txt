@@ -1,1 +1,1 @@
-Esercizio svolto 
+Esercizio svolto
